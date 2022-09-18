@@ -17,7 +17,7 @@ I really excited about my work and my goal is to make my clients satisfied with 
 	
 	• Git, GitLab. 
 	
-# Expitrence
+# Experience
 	• Front-end: 4 years. 
 	
 	• Back-end: 2 years. 
