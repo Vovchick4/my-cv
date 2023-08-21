@@ -23,7 +23,7 @@ I really excited about my work and my goal is to make my clients satisfied with 
 	• Back-end: 2 years. 
 	
 # My contact
-	• Telegram: @Vov_ka34. 
+	• Telegram: @R_BloodStone_R. 
 	
 	• Mail: ch.vova321@gmail.com. 
 
